@@ -2,7 +2,7 @@
 - 👀 I’m interested in videogames, gardening, and music
 - 🌱 I’m currently learning computer science and programming
 - 💞️ I’m looking to collaborate on stuff
-- 📫 How to reach klausylk@gmail.com
+- 📫 How to reach: KlausTotoni@proton.me
 - 😄 Pronouns: he/him
 
 
